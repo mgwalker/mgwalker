@@ -1,1 +1,1 @@
-![happy Maggie Smith](https://i.imgur.com/frkRKwJ.gif)
+![a man waving with a silly smile](https://i.imgur.com/8LKfO9j.gif)
